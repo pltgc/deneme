@@ -1,0 +1,7 @@
+# deneme
+
+ygggyuı
+öcsdscödlcv
+
+
+##ksdkkkc
